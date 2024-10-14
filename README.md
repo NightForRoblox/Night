@@ -1,2 +1,2 @@
-# Night
+# Night.GG
 I'm better
